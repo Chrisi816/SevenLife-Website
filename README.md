@@ -10,12 +10,12 @@ And so, the legend of SevenLife grew, spreading like wildfire across the interne
 
 So, if you seek a world where stories come alive, where creativity knows no bounds, and where the fusion of roleplaying and GitHub unlocks the door to unimaginable adventures, look no further than SevenLife. For within its virtual walls, dreams become reality, and the threads of imagination weave together to create a tapestry of epic proportions. Welcome to SevenLife, where legends are born, and the realm of possibilities knows no bounds.
 
+## Socials
 
---------------------------------
 Discord: https://discord.gg/zPmFehFm <br>
 Instagram: https://www.instagram.com/sevenlife.rp/ <br>
 LinkTree: https://linktr.ee/SevenLifeRP <br>
---------------------------------
+
 
 # Official Design
 
